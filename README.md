@@ -1,2 +1,2 @@
-andinur.github.io
+https://andiasegaff22/andinur.github.io
 
